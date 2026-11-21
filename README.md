@@ -51,7 +51,7 @@ Working on creative design projects, including:
 
 I'm always interested in creative opportunities, collaborations, and connecting with people who love design.
 
-- **Email:** sukritigoswami2601@gmail.com
+- **Linkedin:** www.linkedin.com/in/sukriti-goswami-b382282a3
 - **Location:** Ayodhya, India
 
 ---
